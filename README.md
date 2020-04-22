@@ -1,1 +1,1 @@
-# PRO-G-TEN
+# PRO G-TEN
